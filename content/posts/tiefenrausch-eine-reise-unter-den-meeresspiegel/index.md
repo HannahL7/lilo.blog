@@ -2,7 +2,7 @@
 title = "Tiefenrausch - Eine Reise unter den Meeresspiegel"
 date = "2023-06-15"
 draft = false
-pinned = false
+pinned = true
 image = ""
 description = "Die Unterwasserwelt birgt faszinierende Wunder und Herausforderungen, von farbenprächtigen Korallenriffen bis hin zu atemberaubenden Meeresbewohnern. Es ermöglicht Abenteuer in einer anderen Dimension voller Schönheit aber auch Herausforderungen."
 +++
