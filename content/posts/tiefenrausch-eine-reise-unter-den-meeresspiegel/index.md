@@ -24,11 +24,9 @@ Taucher setzen ihr Vertrauen in ihre Ausrüstung und wissen, dass sie auf sie z�
 
 **Eine faszinierende Unterwasserwelt**
 
-Sobald die Taucher bereit sind, tauchen sie in eine neue Welt ein, die mit Leben und Farbenpracht erfüllt ist. Korallenriffe, die sich in lebendigen Farben erstrecken, dienen als Heimat für eine Vielzahl von Meeresbewohnern. Bunte Fische in allen Größen und Formen ziehen anmutig vorbei, während Schildkröten gemächlich durch das Wasser gleiten. Anderswo schweben Mantar
+![Bei Chumphon Pinnacle vor Koh Tao, Bild aus eigener Quelle](thailand-bild-2.jpg)
 
-![Bei Chumphon Pinnacle vor Koh Tao Bild aus eigener Quelle](thailand-bild-2.jpg)
-
-ochen majestätisch über den Sandboden, während verspielte Delfine die Taucher mit ihrer Neugierde begrüßen. Das Tauchen bietet eine einzigartige Möglichkeit, diese faszinierenden Meeresbewohner in ihrem natürlichen Lebensraum zu beobachten und unvergessliche Begegnungen zu erleben. Die Stille unter Wasser lässt die Taucher in einsinken in ein Umfeld, in dem sie sich eins fühlen mit der Natur und dem Rhythmus des Ozeans.
+Sobald die Taucher bereit sind, tauchen sie in eine neue Welt ein, die mit Leben und Farbenpracht erfüllt ist. Korallenriffe, die sich in lebendigen Farben erstrecken, dienen als Heimat für eine Vielzahl von Meeresbewohnern. Bunte Fische in allen Größen und Formen ziehen anmutig vorbei, während Schildkröten gemächlich durch das Wasser gleiten. Anderswo schweben Mantaochen majestätisch über den Sandboden, während verspielte Delfine die Taucher mit ihrer Neugierde begrüßen. Das Tauchen bietet eine einzigartige Möglichkeit, diese faszinierenden Meeresbewohner in ihrem natürlichen Lebensraum zu beobachten und unvergessliche Begegnungen zu erleben. Die Stille unter Wasser lässt die Taucher in einsinken in ein Umfeld, in dem sie sich eins fühlen mit der Natur und dem Rhythmus des Ozeans.
 
 **Herausforderungen und Verantwortung**
 
