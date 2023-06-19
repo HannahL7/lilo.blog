@@ -6,7 +6,7 @@ pinned = true
 image = "thailand-bild-1.jpg"
 description = ""
 +++
-*Die Unterwasserwelt birgt faszinierende Wunder und Herausforderungen, von farbenprächtigen Korallenriffen bis hin zu atemberaubenden Meeresbewohnern. Es ermöglicht Tauchern ein Abenteuer in einer anderen Dimension voller Schönheit. Wie läuft ein Tauchgang ab und worauf müssen Taucher sich vorbereiten?*
+*Die Unterwasserwelt birgt faszinierende Wunder und Herausforderungen, von farbenprächtigen Korallenriffen bis hin zu atemberaubenden Meeresbewohnern. Es ermöglicht Tauchern ein Abenteuer in einer anderen Dimension voller Schönheit. Wie läuft ein Tauchgang ab und worauf müssen sich die Taucher vorbereiten?*
 
 *Eine Reportage von Hannah Lerch*
 
